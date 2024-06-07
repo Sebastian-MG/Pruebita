@@ -1,2 +1,8 @@
 # Pruebita
-ESTE REPOSITORIO PARA BLA BLA
+estre rpo es genial
+
+instalacion
+credencial
+
+
+dc,scdsca
